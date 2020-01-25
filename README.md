@@ -1,5 +1,5 @@
 # Public-Work-Videos
-Saved videos that show some public works.
+Saved videos that show some public works. (That I'm relatively proud of...)
 
 
 [PokeTrials] (https://www.youtube.com/watch?v=_zDW1mPw1TI) - Pixelmon MMO, first server in Pixelmon to have fully custom Pokemon.

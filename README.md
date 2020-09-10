@@ -9,3 +9,5 @@ Saved videos that show some public works. (That I'm relatively proud of...)
 [Journey Gaming](https://www.youtube.com/watch?v=Xa6bwu5sioc) - Pixelmon Server, many unique features set it apart for years.
 
 [Minecraft Ultimate Event](https://www.youtube.com/watch?v=vAACnDkKqFo) - Influencer focused 200+ player Hunger Games.
+
+[Pixelmon Mod](https://www.youtube.com/watch?v=f7BkjWCYs94) - Pokemon, in Minecraft.

@@ -22,3 +22,5 @@ Saved videos that show some public works. (That I'm relatively proud of...)
 [Minecraft Ultimate Event](https://www.youtube.com/watch?v=vAACnDkKqFo) - Influencer focused 200+ player Hunger Games.
 
 [Pixelmon Mod](https://www.youtube.com/watch?v=f7BkjWCYs94) - Pokemon, in Minecraft.
+
+[KQuigley_Resume_25.pdf](https://github.com/user-attachments/files/20884635/KQuigley_Resume_25.pdf)
